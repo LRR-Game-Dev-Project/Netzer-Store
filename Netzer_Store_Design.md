@@ -82,9 +82,16 @@
 ## 🎮 סקירת משחקים קיימים  
 
 **1. Diner Dash** – משחק ניהול מסעדה קלאסי המתמקד בתזמון ותגובה מהירה.  
-**2. Cooking Dash** – גרסה מתקדמת עם בישול, מתכונים ושדרוגים.  
-**3. Overcooked** – משחק שיתופי שבו צוות שחקנים מתמודד עם לחץ במטבח כאוטי.  
 
+![](https://www.macgamestore.com/images_screenthumbs/diner-dash-2-restaurant-rescue-3208.jpg)  
+
+**2. Cooking Dash** – גרסה מתקדמת עם בישול, מתכונים ושדרוגים.   
+
+![](https://www.macgamestore.com/images_screenthumbs/cooking-dash-3-thrills-and-spills-collectors-edition-8361.jpg)  
+
+**3. Overcooked** – משחק שיתופי שבו צוות שחקנים מתמודד עם לחץ במטבח כאוטי.    
+
+![](https://i0.wp.com/epiloguegaming.com/wp-content/uploads/2019/02/ss_88214b3459727a759728dc9c6f4e07ad8b66f383.jpg?w=2000&ssl=1)
 ---
 
 ## 💡 בידול וייחוד של *Netzer Store*  
